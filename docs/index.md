@@ -1,4 +1,5 @@
 **Regular meetings will be held at 9 AM PT on the first Saturday of each month**
+
 _Next meeting: 5 Dec 2020_
 
 ## Meeting minutes
