@@ -1,4 +1,4 @@
 # Meetings
 About regular meetings
 
-9 AM PT Monthly on First Saturday's
+8:30 AM PT Monthly on First Saturday's
